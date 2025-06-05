@@ -1,1 +1,0 @@
-Desta aula 4, apenas fiz o último, o terceiro. Era o mais difícil, era aquele dos produtos Estaduais, Nacionais e Importados.
